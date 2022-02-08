@@ -2,7 +2,7 @@
 
 ### About me: :dart:
 
-I'm graduated from geological engineering at **Universitas Diponegoro, Indonesia**.<br />
+I've graduated from geological engineering at **Universitas Diponegoro, Indonesia**.<br />
 Working in construction site as a geologist and engineer from 2018-2021.
 
 Passionate about data analytics and content creation.<br />
