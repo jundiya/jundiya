@@ -1,4 +1,4 @@
-## Hi there, my name is Jundiya :wave:
+## Hi there, my name is Jundiya Al Haqiqi:wave:
 
 ### About me: :dart:
 
